@@ -18,3 +18,5 @@
 ঠিকানা: গোয়াইনগাও,বিশ্বম্ভরপুর,সুনামগন্জ
 মোবাইল নম্বর: ০১৯৭৬৪৪৯১৬৩
 তারিখ: ২৭/১১/২০২৪
+
+https://ldtax.gov.bd/ldtax-holdings/individual-rashid-print-offline/NHM4T3ZYbitPYmlxRURUNGphamdsUT09
