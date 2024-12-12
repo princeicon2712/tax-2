@@ -20,3 +20,4 @@
 তারিখ: ২৭/১১/২০২৪
 
 https://ldtax.gov.bd/ldtax-holdings/individual-rashid-print-offline/NHM4T3ZYbitPYmlxRURUNGphamdsUT09
+link:- https://ldtax.gov.bd/ldtax-holdings/individual-rashid-print-offline/NHM4T3ZYbitPYmlxRURUNGphamdsUT09
